@@ -8,5 +8,6 @@
 - 🪛 Técnico em Informática 
 - 👯 Procuro colaborar em tudo que eu puder
 - ⚡ Consultora de vendas Industrial
+- ❤️ Namoradinha do Zig
 ### Projetos Destacados
 kkk n tenho projeto ainda
